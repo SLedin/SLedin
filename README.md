@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SLedin
-- 👀 I’m interested in snowboarding and just outdoor sports in general
+- 👀 I’m interested in snowboarding and outdoor sports in general
 - 🌱 I’m currently learning cybersecurity analysis
 - 💞️ I’m looking to collaborate on cybersecurity
 - 📫 How to reach me www.linkedin.com/in/scott-ledin
